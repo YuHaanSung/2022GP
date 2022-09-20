@@ -1,2 +1,2 @@
 # 2022-GP
-졸작 깃 연습
+졸작  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 
